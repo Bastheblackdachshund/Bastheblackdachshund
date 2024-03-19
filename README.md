@@ -1,1 +1,1 @@
-i am a student
+Trains are pretty fun
